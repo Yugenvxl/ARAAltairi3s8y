@@ -1,1 +1,0 @@
-# ARAAltairi3s8y
